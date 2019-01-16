@@ -11,6 +11,7 @@ https://www.youtube.com/watch?v=UNxFm7_XTyA
 終盤テンポがクッソ上がっていく。
 歌劇自体はたいへんつまらなくてすぐ打ち切られたが、この曲だけ人気があって現代まで残っているらしい。納得。
 
+## クラシック(ピアノ)
 ### ベートーヴェン ピアノ・ソナタ第8番「悲愴」 op.13 第1楽章
 
 https://www.youtube.com/watch?v=qO8yfBLNVjU
