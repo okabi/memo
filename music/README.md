@@ -24,3 +24,18 @@ https://www.youtube.com/watch?v=qO8yfBLNVjU
 弾き方的にたぶん Valentina Lisitsa なんだけど、張った動画はちょっと違う。
 
 Lisitsa はラフマニノフの超絶技巧曲が有名な気がする。 https://www.youtube.com/watch?v=tVuP1BjbhAg
+
+## 邦楽
+### プリンセス プリンセス「M」
+
+https://www.youtube.com/watch?v=U0OCIr90XA4
+
+最近になって改めて聞いてみると、詞・曲構成共に非常に計算高く作られていることに気付いて衝撃を受けた。
+Queenの影響を受けているらしいが、なるほどと言った感じ。
+
+最初この歌を聞いたときは「フラれたのかな？死別したのかな？」と思っていたが、最後に「黒いジャケット 後ろ姿が 誰かと見えなくなっていく」だからフラれてるんですよね。
+その辺も含めて、あらゆる「人との別れ」に共感できる歌詞なのはすごいと思う。
+
+https://gendai.ismedia.jp/articles/-/51068
+
+↑の誕生秘話が面白かった。
